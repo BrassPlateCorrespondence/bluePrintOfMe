@@ -1,5 +1,5 @@
 Operating System
-    Working by self
+    Breaking work into sections
     Headphones
     Instructions to refer back to
 Whakapapa
