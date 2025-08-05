@@ -6,6 +6,7 @@ Whakapapa
     Mum from Wairarapa
     Dad from Upper Hutt
     Born in Wairarapa
+    Moved to Whangarei a decade ago
 Best out of Me
     Ask questions directly
     Let me do things hands on
